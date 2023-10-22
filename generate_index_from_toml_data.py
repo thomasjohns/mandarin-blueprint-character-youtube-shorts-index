@@ -1,8 +1,8 @@
-import json
+import tomllib
 
 
-with open('char_to_blueprint_shorts.json', 'r') as fp:
-    char_to_blueprint_shorts = json.load(fp)
+with open('char_to_blueprint_shorts.toml', 'rb') as fp:
+    char_to_blueprint_shorts = tomllib.load(fp)
 
 
 for char, shorts in char_to_blueprint_shorts.items():
