@@ -16,10 +16,10 @@
     - [PART 3 on the Chinese character 面 meaning “side,” “aspect,” or “respect”](https://www.youtube.com/shorts/ADTpbEy_G1I)
 - 想
     - [PART 1 on the Chinese character 想 meaning “to think” or “to want” #speakchinese #pinyin](https://www.youtube.com/shorts/CJyBXml3ZqQ)
-    - [PART 2 on the Chinese character 想 meaning “to miss" and “to think”🤔 #chinesetones #HSK #learnchinese](https://www.youtube.com/shorts/SWeKMty3568)
+    - [PART 2 on the Chinese character 想 meaning “to miss" and “to think”🤔 #chinesetones #HSK #learnchinese](https://www.youtube.com/shorts/SWeKMty3568)
     - [PART 1 on the Chinese character 想 meaning “to think” or “to want”](https://www.youtube.com/shorts/im6G7wQw9hw)
 - 米
-    - [This Chinese character is incredibly useful! It means both “rice” and “meter” 🍚📏 #HSK #chinesephrase](https://www.youtube.com/shorts/LKFMoXcQmT0)
+    - [This Chinese character is incredibly useful! It means both “rice” and “meter” 🍚📏 #HSK #chinesephrase](https://www.youtube.com/shorts/LKFMoXcQmT0)
     - [This Chinese character is incredibly useful! It means both “rice” and “meter”](https://www.youtube.com/shorts/IJmtAXe-Q9o)
 - 丢
     - [Here’s how to say “lose” or “discard” in Mandarin 😳 #pinyin #chinesephrases #learnmandarin](https://www.youtube.com/shorts/-3YFhlEAhpE)
@@ -36,28 +36,28 @@
     - [PART 1 on the Chinese character 坏 meaning “bad” or “broken” 😡 #chinesephrases #learnchinese #HSK](https://www.youtube.com/shorts/kKXQBXSH37g)
     - [PART 2 on the Chinese character 坏 - how to use it with other words #HSK #learnchinese #studymandarin](https://www.youtube.com/shorts/O0dK-BF9Pm0)
 - 土
-    - [Here’s a Chinese character that means “earth” or “soil” #chinesephrases #learnchinese #studymandarin](https://www.youtube.com/shorts/kRqWzKjKAzE)
+    - [Here’s a Chinese character that means “earth” or “soil” #chinesephrases #learnchinese #studymandarin](https://www.youtube.com/shorts/kRqWzKjKAzE)
 - 包
     - [PART 1 on the Chinese character 包 meaning “bag” or to “wrap” 🎁 #chinesetones #learnmandarin #HSK](https://www.youtube.com/shorts/kft_uqKu2eE)
-    - [PART 2 on the Chinese character 包 meaning “package” 📦 #speakchinese #mandarinlearning #pinyin](https://www.youtube.com/shorts/skRyw8Aly_E)
+    - [PART 2 on the Chinese character 包 meaning “package” 📦 #speakchinese #mandarinlearning #pinyin](https://www.youtube.com/shorts/skRyw8Aly_E)
 - 公
     - [PART 1 on the Chinese character 公 meaning “public” or “common" #HSK #mandarinlearning #pinyin](https://www.youtube.com/shorts/1week3RnamE)
     - [PART 2 on the Chinese character 公 meaning “fair” or “just” 👌 #speakchinese #mandarinlearning #pinyin](https://www.youtube.com/shorts/8UNPh0tCWiE)
-    - [PART 3 on the Chinese character 公 implying an “official” role 👀 #chinesetones #learnmandarin #HSK](https://www.youtube.com/shorts/W9RgwicxZwo)
+    - [PART 3 on the Chinese character 公 implying an “official” role 👀 #chinesetones #learnmandarin #HSK](https://www.youtube.com/shorts/W9RgwicxZwo)
 - 已
     - [How to say “already” in Mandarin Chinese #chineselearning #mandarinchinese #studymandarin](https://www.youtube.com/shorts/kx4h_eLpKCc)
 - 己
     - [Here’s how to mean “self” or “oneself” in Chinese #chineselearning #chinesetones #studymandarin](https://www.youtube.com/shorts/cPEl-PmnkTM)
 - 么
-    - [Want to learn this weird Chinese character?? 🤔 #chinesetones #learnmandarin #HSK](https://www.youtube.com/shorts/Gt-L4vcyym4)
+    - [Want to learn this weird Chinese character?? 🤔 #chinesetones #learnmandarin #HSK](https://www.youtube.com/shorts/Gt-L4vcyym4)
 - 杯
-    - [How to say “cup” or “glass” in Mandarin 🍷 #chineselearning #mandarinchinese #studymandarin](https://www.youtube.com/shorts/ALtBE7UG5Xc)
+    - [How to say “cup” or “glass” in Mandarin 🍷 #chineselearning #mandarinchinese #studymandarin](https://www.youtube.com/shorts/ALtBE7UG5Xc)
 - 还
     - [PART 1 on the Chinese character 还 meaning “still” “yet” or “express” #chineselearning #studymandarin](https://www.youtube.com/shorts/zEjLdn5CNNI)
     - [PART 2 on the Chinese character 还 meaning “or”❓#chinesetones #learnmandarin #HSK](https://www.youtube.com/shorts/YLDdZ559p4Q)
     - [PART 3 on the Chinese character 还 meaning "to return” #speakchinese #mandarinlearning #pinyin](https://www.youtube.com/shorts/LtJOodONbLA)
 - 不
-    - [This Chinese character 不 means “no” “not” or “do not” ❌ #chinesephrases #learnchinese #studymandarin](https://www.youtube.com/shorts/W3s6l05wJeQ)
+    - [This Chinese character 不 means “no” “not” or “do not” ❌ #chinesephrases #learnchinese #studymandarin](https://www.youtube.com/shorts/W3s6l05wJeQ)
 - 起
     - [PART 1 on the Chinese character 起 meaning “rise” or “begin” #chineselearning #mandarinchinese #HSK](https://www.youtube.com/shorts/9l6sRouUOMY)
     - [PART 2 on the Chinese character 起 meaning to “begin” or “initiate" #chinesetones #learnmandarin #HSK](https://www.youtube.com/shorts/DVINi01SXGg)
@@ -87,12 +87,12 @@
     - [Here’s how to say “breath” in Chinese #speakchinese #pinyin #HSK](https://www.youtube.com/shorts/Apa-xwiai5M)
 - 机
     - [PART 1 on the Chinese character 机 meaning “machine” #pinyin #chineselearning #mandarincourse](https://www.youtube.com/shorts/WuRWYUy1pM0)
-    - [PART 2 on the Chinese character 机 meaning “aviation” ✈️ #speakchinese #chineseclass #studymandarin](https://www.youtube.com/shorts/ldV4hJs0Vq0)
+    - [PART 2 on the Chinese character 机 meaning “aviation” ✈️ #speakchinese #chineseclass #studymandarin](https://www.youtube.com/shorts/ldV4hJs0Vq0)
     - [PART 3 on the Chinese character 机 meaning “structure” or “opportunity” #chinesephrases #chinesetones](https://www.youtube.com/shorts/Th8Tru-oCKY)
 - 几
     - [How to say “few” in Mandarin Chinese #speakchinese #learnmandarin #chinesecourse](https://www.youtube.com/shorts/4j9JONpznvM)
 - 香
-    - [This Chinese character is how you say “fragrant” or “aromatic”💨 #learnchinese #studymandarin](https://www.youtube.com/shorts/Ys3-kk51xPI)
+    - [This Chinese character is how you say “fragrant” or “aromatic”💨 #learnchinese #studymandarin](https://www.youtube.com/shorts/Ys3-kk51xPI)
 - 种
     - [How to say “type” or “kind” in Chinese….and also “seed” 🌱#pinyin #speakchinese #HSK](https://www.youtube.com/shorts/nSWcSTadXHY)
 - 语
@@ -125,7 +125,7 @@
     - [PART 2 on the Chinese character 体 ; how to say “system” #speakchinese #learnmandarin #mandarin](https://www.youtube.com/shorts/1Tb8Tmtm_Y0)
     - [PART 3 on the Chinese character 体 comparing 体现 , 体会 , and 体验 #HSK #chineselearning #studymandarin](https://www.youtube.com/shorts/QdLLtnmACkI)
 - 本
-    - [PART 1 on the Chinese character 本 meaning “notebook” and “root”📓  #chinesetones #chineselearning](https://www.youtube.com/shorts/k2w9M6fYhV8)
+    - [PART 1 on the Chinese character 本 meaning “notebook” and “root”📓  #chinesetones #chineselearning](https://www.youtube.com/shorts/k2w9M6fYhV8)
     - [PART 2 on the Chinese character 本 meaning “root” and “this” #chinesephrases #learnchinese #mandarin](https://www.youtube.com/shorts/Ws-Q6PK2qcg)
 - 木
     - [How to say “wood” in Mandarin🪵 #learnmandarin #chineseclass #mandarinchinese](https://www.youtube.com/shorts/W6W1v6lTWtY)
@@ -151,7 +151,7 @@
 - 谢
     - [Learn how to be polite and say “thanks” in Chinese!🙏 #learnchinese #mandarinchinese #studymandarin](https://www.youtube.com/shorts/VmBNE-UQZzg)
 - 身
-    - [Here is how you say “body” in Mandarin🧍‍♀️🧍 #studymandarin #speakchinese #HSK](https://www.youtube.com/shorts/uyS3gmVHoC0)
+    - [Here is how you say “body” in Mandarin🧍‍♀️🧍 #studymandarin #speakchinese #HSK](https://www.youtube.com/shorts/uyS3gmVHoC0)
 - 自
     - [This Chinese character means “self” #mandarincourse #HSK #learnchinese](https://www.youtube.com/shorts/iptr0X0dCUA)
 - 目
