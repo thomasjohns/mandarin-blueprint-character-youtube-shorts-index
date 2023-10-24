@@ -284,3 +284,5 @@
     - [It’s very useful to know how to say “half” in Chinese #learnchineseonline #mandarinlearning](https://www.youtube.com/shorts/VvXoADKZUTI)
 - 干
     - [How to say “to do” in Chinese 💬 #speakchinese #chinesecourse #pinyin](https://www.youtube.com/shorts/IGF5rCpbvVw)
+- 们
+    - [How to turn nouns plural in Mandarin 👯 #pinyin #chinesetones](https://www.youtube.com/shorts/zvCwTMfiW7c)
