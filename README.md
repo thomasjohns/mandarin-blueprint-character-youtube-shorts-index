@@ -288,3 +288,4 @@
     - [How to turn nouns plural in Mandarin 👯 #pinyin #chinesetones](https://www.youtube.com/shorts/zvCwTMfiW7c)
 - 法
     - [PART 1 on the Chinese character 法 meaning “method” or “way” 🛣️ #speakchinese #mandarinlearning #HSK](https://www.youtube.com/shorts/RZhJb91Rj60)
+    - [PART 2 on the Chinese character 法 meaning “law” ⚖️ #mandarinchinese #HSK](https://www.youtube.com/shorts/-J-pmg16xag)
