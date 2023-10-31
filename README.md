@@ -289,3 +289,5 @@
 - 法
     - [PART 1 on the Chinese character 法 meaning “method” or “way” 🛣️ #speakchinese #mandarinlearning #HSK](https://www.youtube.com/shorts/RZhJb91Rj60)
     - [PART 2 on the Chinese character 法 meaning “law” ⚖️ #mandarinchinese #HSK](https://www.youtube.com/shorts/-J-pmg16xag)
+- 问
+    - [PART 1 on the Chinese character 问 meaning “ask” ❓ #learnmandarin #HSK #chineselearning](https://www.youtube.com/shorts/5GBLVkg5Pco)
