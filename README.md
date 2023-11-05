@@ -292,3 +292,5 @@
 - 问
     - [PART 1 on the Chinese character 问 meaning “ask” ❓ #learnmandarin #HSK #chineselearning](https://www.youtube.com/shorts/5GBLVkg5Pco)
     - [PART 2 on the Chinese character 问 meaning “visit” or “be published” 📚 #studymandarin #HSK #pinyin](https://www.youtube.com/shorts/FbAUk75ncNs)
+- 间
+    - [PART 1 on the Chinese character 间 meaning “room” 🏠 #chinesephrases #learnmandarin #chineseclass](https://www.youtube.com/shorts/F3r-vGDgpGM)
