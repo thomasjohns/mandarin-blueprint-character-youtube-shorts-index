@@ -186,6 +186,7 @@
     - [Use this Chinese character when something happened later than you expected #chinesephrases](https://www.youtube.com/shorts/ieeK8-KoeSs)
 - 讨
     - [Associate this Chinese character with “teasing out” #pinyin #speakchinese #HSK](https://www.youtube.com/shorts/qZdWHwgEzCY)
+    - [讨 Meaning To Tease Out](https://www.youtube.com/shorts/h4EKBSQJVhA)
 - 过
     - [This Chinese character helps you describe past experiences #chinesephrases #pinyin #chinesetones](https://www.youtube.com/shorts/dw9IvoBfBWg)
 - 时
