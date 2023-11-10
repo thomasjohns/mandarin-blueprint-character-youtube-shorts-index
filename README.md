@@ -296,3 +296,5 @@
 - 间
     - [PART 1 on the Chinese character 间 meaning “room” 🏠 #chinesephrases #learnmandarin #chineseclass](https://www.youtube.com/shorts/F3r-vGDgpGM)
     - [PART 2 on the Chinese character 间 implying “time” 🕑 #mandarinchinese #learnmandarin #chineselearning](https://www.youtube.com/shorts/-l6jtclh5Bg)
+- 习
+    - [习 Meaning to Practice](https://www.youtube.com/shorts/hDahD_t3bdY)
